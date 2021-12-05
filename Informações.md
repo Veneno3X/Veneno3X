@@ -1,0 +1,2 @@
+- As vezes, as pessoas mais caladas, são as que menos falam.
+- Admin do Grupo, 25/12/2020 às 23:52.
